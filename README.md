@@ -3,6 +3,7 @@
 I'm Tien
 
 - 💻 Developer focused on JAVA and EES (Thermodynamics, Heat Transfer)
+- 🎓 Studying Mechanical Engineering at Inha University
 - 🌱 Just a beginner, so I need to learn a lot more and improving my coding skills
 - 🤔 Always eager to learn new things, knowledge is endless
 - 📫 How to reach me: trandangtien10b1@gmail.com
