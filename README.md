@@ -9,7 +9,7 @@ I'm Tien
 - 🤔 Always eager to learn new things, knowledge is endless
 - 📫 How to reach me: trandangtien10b1@gmail.com
 - [![Email](https://img.icons8.com/?size=100&id=110236&format=png&color=000000)](mailto:trandangtien10b1@gmail.com)
-  [![](https://img.icons8.com/?size=100&id=TSZw5VixabhS&format=png&color=000000)]([https://www.linkedin.com/in/your-linkedin-username/](https://www.instagram.com/go_wooyoung99))
-  [![](https://img.icons8.com/?size=100&id=118562&format=png&color=000000)](https://https://www.facebook.com/tien.trandang.71)
+  [![Instagram](https://img.icons8.com/?size=100&id=TSZw5VixabhS&format=png&color=000000)](https://www.instagram.com/go_wooyoung99))
+  [![Facebook](https://img.icons8.com/?size=100&id=118562&format=png&color=000000)](https://https://www.facebook.com/tien.trandang.71)
 - ⚡ Fun fact: Lost 20 kg through fasting and clean eating!
 
